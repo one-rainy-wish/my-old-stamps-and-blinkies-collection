@@ -1,0 +1,1 @@
+# my-old-stamps-and-blinkies-collection
